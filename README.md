@@ -2,6 +2,48 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
+## 10 Idioms
+
+> **Speak of the devil**  
+> We were just talking about you
+
+pull someone's leg === are you kidding
+
+> Are you **pulling my leg**?
+
+> So far so good?
+
+> No pain no gain
+
+> It's not rocket science
+
+hit the sack === going to bed
+
+> Alright, I think I'll **hit the sack**.  
+> I have an early morning tomorrow
+
+hang in there === don't give up
+
+> I know the finals week is tough,  
+> but just **hang in there**
+
+give someone the benefit of the doubt === trust with someone says even though you think they are not telling the truth
+
+> I'm gonna **give him the benefit of the doubt**  
+> even though he seems shady
+
+cut somebody some slack === do not judge so hard === don't be very tough on them
+
+> Jeez, **gimme some slack**  
+> I'm new here
+
+wrap my head around smth === to understand smth
+
+> I got this.  
+> I wrapped my head around it
+
+> I couldn't wrap my head around what happened
+
 ## You are welcome
 
 _You are welcome_ is used for strangers.
