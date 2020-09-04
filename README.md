@@ -2,6 +2,27 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
+## You are welcome
+
+_You are welcome_ is used for strangers.
+
+> Can you give me a knife  
+> Sure
+
+> Thanks  
+> No problem / Sure, no problem
+
+> You help me out  
+> Any time
+
+> No worries
+
+> It's all good
+
+> My pleasure  
+> Pleasure is mine
+
+> Don't mention it (is not often used) 
 
 ## Though
 
