@@ -3,6 +3,28 @@
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
 
+## Though
+
+https://www.youtube.com/watch?v=8uAAl2ONmL8&ab_channel=KIRILL%27SENGLISH
+
+Contrast
+
+Synonyms: but, however
+
+> I have a terrible headache.  
+> I'm gonna finish my essay, **tho**
+
+> I don't usually drink beer.  
+> I've had two today, **tho**
+
+> I'm good.  
+> Tnx, **tho**
+
+> Sure . I don't wanna, **tho**
+
+> Did you buy eggs?  
+> I did. But I did't buy milk, **tho**
+
 ## The gerund
 
 https://www.youtube.com/watch?v=jDVaUxw03to
