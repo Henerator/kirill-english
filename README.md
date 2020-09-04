@@ -188,3 +188,28 @@ The Gerund follows prepositions
 > I **can't stand working** from home  
 > It is **no use trying** to convince him of that  
 > It is **worth doing** all we can to make it irreversible
+
+## Used to
+
+https://www.youtube.com/watch?v=DtUsyzAXZ9g&ab_channel=KIRILL%27SENGLISH
+
+We use _used to_ when we refer to things in the past which are no longer true
+
+> I **used to** smoke
+
+> I **used to** work in a bank
+
+> They **used to** be married
+
+> We **used to** hang out a lot,  
+> but we don't do it anymore
+
+> We don't talk anymore like we **used to** do
+
+> It **didn't use to** be like that
+
+> I **didn't use to** go out for a drink
+
+> Did you **use to** leave here?
+
+> Did this building **use to** be a hotel?
