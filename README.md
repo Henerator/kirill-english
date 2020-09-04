@@ -2,6 +2,50 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
+## How are you
+
+https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH
+
+> How are you
+
+> How are you doing
+
+> How are you doing today
+
+> How is it going
+
+> What's up  
+> Sup
+
+> What's going on
+
+Answers:
+
+How are you
+
+> I'm good  
+> I'm great  
+> I'm fantastic
+
+> Not bad
+
+How are you doing
+
+> Good  
+> Great  
+
+> Not bad
+
+How is it going
+
+> It's good
+
+What's up
+
+> Not much
+
+> Nothing much
+
 ## Should not have done
 
 https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH
