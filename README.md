@@ -2,7 +2,29 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
+## Should not have done
+
+https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH
+
+> I wish I hadn't called you
+
+> I wish I wouldn't have called you  
+> I wish I wouldna called you
+
+> I wish I had never told you that  
+> I wish I'd ...
+
+> I shouldn't have called you  
+> I shouldna called you
+
+> I shouldn't come here
+
+> Such a waste!  
+> What a waste!
+
 ## 10 Idioms
+
+https://www.youtube.com/watch?v=9IeA0Jhvs18&ab_channel=KIRILL%27SENGLISH
 
 > **Speak of the devil**  
 > We were just talking about you
@@ -45,6 +67,8 @@ wrap my head around smth === to understand smth
 > I couldn't wrap my head around what happened
 
 ## You are welcome
+
+https://www.youtube.com/watch?v=X-45uXeGEV8&ab_channel=KIRILL%27SENGLISH
 
 _You are welcome_ is used for strangers.
 
