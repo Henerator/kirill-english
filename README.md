@@ -46,6 +46,62 @@ What's up
 
 > Nothing much
 
+### From Puzzle English
+
+https://www.youtube.com/watch?v=Bwx0RxIEBZA&ab_channel=PuzzleEnglishLIVE
+
+#### Positive answers
+
+> I'm well  
+> I'm pretty well
+
+> I've never been better
+
+> So far, so good
+
+> Can't complain
+
+> Better than I deserve
+
+> If I had a tail, I would wag it
+
+> I'm alright
+
+> So so
+
+> Not so bad
+
+> Same old, same old
+
+> I'm alive
+
+> Good enough
+
+> I'm alright now, but there's still time for  
+> everything to go horribly wrong
+
+> Better now that I'm talking to you
+
+#### Negative answers
+
+> I'm not going to lie, I feel terrible
+
+> I'm not doing so well
+
+> I'm struggling a bit
+
+> It's been a bit of a tough week
+
+> I'm not having an easy time at the moment
+
+> Don't even ask
+
+> You don't want to know
+
+> I am feeling a bit under the weather
+
+> Overworked and underpaid
+
 ## Should not have done
 
 https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH
