@@ -262,6 +262,8 @@ We use _used to_ when we refer to things in the past which are no longer true
 
 > We don't talk anymore like we **used to** do
 
+> This street **used to** be very dark until the new lights were installed
+
 > It **didn't use to** be like that
 
 > I **didn't use to** go out for a drink
@@ -269,6 +271,50 @@ We use _used to_ when we refer to things in the past which are no longer true
 > Did you **use to** leave here?
 
 > Did this building **use to** be a hotel?
+
+## Be used to doing
+
+https://www.youtube.com/watch?v=xRM21TY8oQQ&ab_channel=KIRILL%27SENGLISH
+
+> I'm not **used to** this feeling
+
+> I'm not **used to** being loved
+
+> I'm not **used to** talking English
+
+> I'm not **used to** being around new people
+
+> How can you wake up so early and feel great?  
+> I'm **used to** it
+
+> She is **used to** doing a lot of manual labor  
+> 'cause she grew up on a farm
+
+### Get used to
+
+> I'm not **used to** the heat. I'm from a cold country.  
+> You'll **get used to** it
+
+> Since I'm from the States, I'm **used to** driving on the right side.  
+> But here in London, they drive on the opposite side, and  
+> I'm gonna have to **get used to** it
+
+> Did you **get used to** sorting out trash?  
+> Not yet, but I'm getting there
+
+> I've already **gotten used to** noisy NY
+
+> Last year I switched from iOS to Android,  
+> and I can't seem to **get used to** it
+
+> I find it hard to **get used to** the dark evenings in winter
+
+> It took me a while to **get used to** typing on a new keyboard
+
+> I haven't studied for ages and I'm finding it hard  
+> to **get used to** studying every day
+
+> It's taking me a long time to **get used to** speaking Norwegian
 
 ## Would
 
