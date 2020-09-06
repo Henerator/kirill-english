@@ -2,9 +2,7 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
-## How are you
-
-https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH
+## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
 > How are you
 
@@ -46,9 +44,7 @@ What's up
 
 > Nothing much
 
-### From Puzzle English
-
-https://www.youtube.com/watch?v=Bwx0RxIEBZA&ab_channel=PuzzleEnglishLIVE
+### [From Puzzle English](https://www.youtube.com/watch?v=Bwx0RxIEBZA&ab_channel=PuzzleEnglishLIVE)
 
 #### Positive answers
 
@@ -102,9 +98,7 @@ https://www.youtube.com/watch?v=Bwx0RxIEBZA&ab_channel=PuzzleEnglishLIVE
 
 > Overworked and underpaid
 
-## Should not have done
-
-https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH
+## [Should not have done](https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH)
 
 > I wish I hadn't called you
 
@@ -122,9 +116,7 @@ https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH
 > Such a waste!  
 > What a waste!
 
-## 10 Idioms
-
-https://www.youtube.com/watch?v=9IeA0Jhvs18&ab_channel=KIRILL%27SENGLISH
+## [10 Idioms](https://www.youtube.com/watch?v=9IeA0Jhvs18&ab_channel=KIRILL%27SENGLISH)
 
 > **Speak of the devil**  
 > We were just talking about you
@@ -166,9 +158,7 @@ wrap my head around smth === to understand smth
 
 > I couldn't wrap my head around what happened
 
-## You are welcome
-
-https://www.youtube.com/watch?v=X-45uXeGEV8&ab_channel=KIRILL%27SENGLISH
+## [You are welcome](https://www.youtube.com/watch?v=X-45uXeGEV8&ab_channel=KIRILL%27SENGLISH)
 
 _You are welcome_ is used for strangers.
 
@@ -190,9 +180,7 @@ _You are welcome_ is used for strangers.
 
 > Don't mention it (is not often used) 
 
-## Though
-
-https://www.youtube.com/watch?v=8uAAl2ONmL8&ab_channel=KIRILL%27SENGLISH
+## [Though](https://www.youtube.com/watch?v=8uAAl2ONmL8&ab_channel=KIRILL%27SENGLISH)
 
 Contrast
 
@@ -212,9 +200,7 @@ Synonyms: but, however
 > Did you buy eggs?  
 > I did. But I did't buy milk, **tho**
 
-## The gerund
-
-https://www.youtube.com/watch?v=jDVaUxw03to
+## [The gerund](https://www.youtube.com/watch?v=jDVaUxw03to)
 
 The Gerund is the -ING form of a verb that functions the same as a noun
 
@@ -245,9 +231,7 @@ The Gerund follows prepositions
 > It is **no use trying** to convince him of that  
 > It is **worth doing** all we can to make it irreversible
 
-## Used to
-
-https://www.youtube.com/watch?v=DtUsyzAXZ9g&ab_channel=KIRILL%27SENGLISH
+## [Used to](https://www.youtube.com/watch?v=DtUsyzAXZ9g&ab_channel=KIRILL%27SENGLISH)
 
 We use _used to_ when we refer to things in the past which are no longer true
 
@@ -272,9 +256,7 @@ We use _used to_ when we refer to things in the past which are no longer true
 
 > Did this building **use to** be a hotel?
 
-## Be used to doing
-
-https://www.youtube.com/watch?v=xRM21TY8oQQ&ab_channel=KIRILL%27SENGLISH
+## [Be used to doing](https://www.youtube.com/watch?v=xRM21TY8oQQ&ab_channel=KIRILL%27SENGLISH)
 
 > I'm not **used to** this feeling
 
@@ -316,9 +298,7 @@ https://www.youtube.com/watch?v=xRM21TY8oQQ&ab_channel=KIRILL%27SENGLISH
 
 > It's taking me a long time to **get used to** speaking Norwegian
 
-## Would
-
-https://www.youtube.com/watch?v=WtDk1QfkN9M&ab_channel=KIRILL%27SENGLISH
+## [Would](https://www.youtube.com/watch?v=WtDk1QfkN9M&ab_channel=KIRILL%27SENGLISH)
 
 > I **would** never do that  
 > He **would** never say that. I'm sure
@@ -345,9 +325,7 @@ Can't be used with state verbs (live, know, love, ...)
 > ~~I would live in NY~~  
 > I used to live in NY
 
-## Big deal
-
-https://www.youtube.com/watch?v=BBg33U7SDg0&ab_channel=KIRILL%27SENGLISH
+## [Big deal](https://www.youtube.com/watch?v=BBg33U7SDg0&ab_channel=KIRILL%27SENGLISH)
 
 > It's no big deal  
 > It's not a big deal  
