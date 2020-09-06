@@ -269,3 +269,32 @@ We use _used to_ when we refer to things in the past which are no longer true
 > Did you **use to** leave here?
 
 > Did this building **use to** be a hotel?
+
+## Would
+
+https://www.youtube.com/watch?v=WtDk1QfkN9M&ab_channel=KIRILL%27SENGLISH
+
+> I would never do that  
+> He would never say that. I'm sure
+
+> I would rather go
+
+Conditional sentence (unreal past condition)
+
+> Would you rather lose all of your money or all of the pictures you've ever taken
+
+> Would you rather your shirts be always two sizes too big  
+> or one size too small
+
+Equal to _used to_
+
+> I would visit my grandparents every summer
+
+> I would call her every day
+
+> My grandma would scold me for stealing plums and apricots from the garden
+
+Can't be used with state verbs (live, know, love, ...)
+
+> ~~I would live in NY~~  
+> I used to live in NY
