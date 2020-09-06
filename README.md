@@ -458,3 +458,22 @@ very much
 very old
 
 > That photo makes me look **ancient**
+
+## [I don't know](https://www.youtube.com/watch?v=QeXDS5v7bIQ&ab_channel=KIRILL%27SENGLISH)
+
+> But I **have no idea** where they went
+
+> Which I **have no clue** what that is
+
+> How should I know?
+
+> What is he doing?  
+> Your guess is as good as mine
+
+> I'm not sure I'm the best person to anwer that
+
+> But here's what I can tell you that it boils down to...
+
+> What I can tell you is that this job is more important to me than you realize
+
+> That's exactly what I want to know as well!
