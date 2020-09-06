@@ -366,3 +366,117 @@ https://www.youtube.com/watch?v=BBg33U7SDg0&ab_channel=KIRILL%27SENGLISH
 
 > But you'll miss the brunch.
 > Big deal!
+
+## [Very replacement](https://www.youtube.com/watch?v=GH8E0orCjTU&ab_channel=KIRILL%27SENGLISH)
+
+very important
+
+> The work she does is absolutely **vital**
+
+> This aid money is **crucial** to the government's economic policies
+
+very interesting
+
+> I found her quite **fascinating**
+
+very expensive
+
+> Such a database would be extremely **costly** to set up
+
+> His delay in making a decision could **prove costly** in the long run
+
+very popular
+
+> They have a **trendy** baseball cap
+
+very scared
+
+> I'm **petrified** of spiders
+
+> He was **petrified** with fear when he saw the gun
+
+> He was **terrified** at the thought of being stranded in the woods
+
+very small
+
+> She always felt a **tiny** bit sad
+
+> He had terrified **tiny little** hopeless eyes
+
+> On this occasion, howeverm there was a **teeny** problem
+
+very tasty
+
+> The meal was absolutely **delicious**
+
+> A **mouth-watering** aroma coming from the kitchen
+
+very bad
+
+> The last six months have been **awful** for her
+
+very clever
+
+> I think that's a **brilliant** idea
+
+very creepy
+
+> There is a **sinister** side to these events
+
+> There was something **sinister** about Mr Scott's death
+
+very difficult
+
+> Photosynthesis is a highly **complex** process
+
+> For young children, getting dressed is a **complicated** business
+
+very funny
+
+> There are some **hilarious** and touching stories along the way
+
+very dirty
+
+> The house was **filthy**, with clothes and newspapers strewn everywhere
+
+very cold
+
+> It's **freezing** in this house. Can't I turn on the heating?
+
+> We were **freezing cold** in the tent last night
+
+very clean
+
+> By the time she had finished the house was absolutely **spotless**
+
+very beautiful
+
+> The hotel room had a **gorgeous** view
+
+> I can hardly wait - I hear some of John'a outfits are quite **stunning**
+
+very big
+
+> The bell is **massive**, weighing over 40 tons
+
+> Your room's **huge** compared to mine
+
+very mad
+
+> She was **furious** with herself for letting things get out of hand
+
+> Still **fuming** at insensitive arrogance of the man she turned and left the office
+
+very painful
+
+> The pain in my knee was **excruciating**
+
+> Helen described the events of the night before in **excruciating** detail
+
+very much
+
+> No need to hurry - you've got **plenty** of time
+
+very old
+
+> That photo makes me look **ancient**
