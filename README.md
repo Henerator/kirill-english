@@ -274,27 +274,49 @@ We use _used to_ when we refer to things in the past which are no longer true
 
 https://www.youtube.com/watch?v=WtDk1QfkN9M&ab_channel=KIRILL%27SENGLISH
 
-> I would never do that  
-> He would never say that. I'm sure
+> I **would** never do that  
+> He **would** never say that. I'm sure
 
-> I would rather go
+> I **would** rather go
 
 Conditional sentence (unreal past condition)
 
-> Would you rather lose all of your money or all of the pictures you've ever taken
+> **Would** you rather lose all of your money or all of the pictures you've ever taken
 
-> Would you rather your shirts be always two sizes too big  
+> **Would** you rather your shirts be always two sizes too big  
 > or one size too small
 
 Equal to _used to_
 
-> I would visit my grandparents every summer
+> I **would** visit my grandparents every summer
 
-> I would call her every day
+> I **would** call her every day
 
-> My grandma would scold me for stealing plums and apricots from the garden
+> My grandma **would** scold me for stealing plums and apricots from the garden
 
 Can't be used with state verbs (live, know, love, ...)
 
 > ~~I would live in NY~~  
 > I used to live in NY
+
+## Big deal
+
+https://www.youtube.com/watch?v=BBg33U7SDg0&ab_channel=KIRILL%27SENGLISH
+
+> It's no big deal  
+> It's not a big deal  
+> It's not a biggie
+
+> I would like to workout today, but if I can't,  
+> it's not a big deal
+
+> I am the one who broke the window last night.  
+> It's ok. It's not a big deal
+
+> Sorry, I can't go to the movie with you tonight.  
+> No worries. No big deal
+
+> I think you're **making a big deal out of it**, and it's not
+
+> But you'll miss the brunch.
+> Big deal!
