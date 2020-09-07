@@ -501,3 +501,19 @@ very old
 > Tammy was **unlike** any other woman I have ever known
 
 > It's **unlike** Greg to be late
+
+## [Before](https://www.youtube.com/watch?v=v1RGTi8MfQc&ab_channel=KIRILL%27SENGLISH)
+
+> **Before** I forget, Willow just called
+
+> Let's just dash out **before** she comes back
+
+> We'd better get out of here **before** he wakes up
+
+> The madness must be stopped **before** it's too late
+
+> Let's go **before** you start crying
+
+> But hand in your math homework **before** you go
+
+> You should have thought about it **before** trying to cheat me
