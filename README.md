@@ -477,3 +477,27 @@ very old
 > What I can tell you is that this job is more important to me than you realize
 
 > That's exactly what I want to know as well!
+
+## [Unlike](https://www.youtube.com/watch?v=TQ1Anb3pTec&ab_channel=KIRILL%27SENGLISH)
+
+> **Unlike** my parents, I don't like seafood
+
+> **Unlike** most people in the office, I don't come to work by car
+
+> Cellulose, **unlike** cotton and linen, does not contract or expand  
+> due to atmospheric conditions
+
+> The festival has been a great success, **unlike** last year,  
+> when it rained non-stop
+
+> **Unlike** most actors, Harris is a rather shy man
+
+> **Unlike** aerobics, walking entails no expensive fees for classes and clubs
+
+> **Unlike** you, I don't judge people
+
+> **Unlike** her sister, she has a big mouth
+
+> Tammy was **unlike** any other woman I have ever known
+
+> It's **unlike** Greg to be late
