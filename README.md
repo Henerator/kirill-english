@@ -539,3 +539,15 @@ very old
 > **Thank God** you called. I was worried
 
 > **Thank God** that's over. I've never been so nervous in my life!
+
+## [Wrinkle](https://idioms.thefreedictionary.com/wrinkle)
+
+A new and often unexpected aspect
+
+> If proven to be true, the discovery could signal a **new wrinkle**  
+> in the way we think about the evolutionary process
+
+> Our latest software update is nearly finished - we just need  
+> to **get** a few more **wrinkles out** before it's ready for release
+
+> There's one more **wrinkle** to consider before you dive in
