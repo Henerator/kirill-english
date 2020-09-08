@@ -517,3 +517,25 @@ very old
 > But hand in your math homework **before** you go
 
 > You should have thought about it **before** trying to cheat me
+
+## [It's a good thing](https://www.youtube.com/watch?v=DNcXN-TDJiA&ab_channel=KIRILL%27SENGLISH)
+
+> It's a **good thing** that you came
+
+> Then it's a **good thing** I'm not NYPD
+
+> **Good thing** they didn't go camping last weekend - the weather was terrible
+
+> It's a **good thing** I brought my camera
+
+> It's a **good thing** you didn't do it
+
+> I'm **glad** you came
+
+> I'm really **glad** I don't have to go back there again
+
+> I'm **glad** to be back home
+
+> **Thank God** you called. I was worried
+
+> **Thank God** that's over. I've never been so nervous in my life!
