@@ -2,6 +2,29 @@
 
 Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 
+**Table of contents**
+
+[How are you](#how-are-you)  
+[Good bye](#good-bye)  
+[Should not have done](#should-not-have-done)  
+[10 Idioms](#10-idioms)  
+[You are welcome](#you-are-welcome)  
+[Though](#though)  
+[The gerund](#the-gerund)  
+[Used to](#used-to)  
+[Be used to doing](#be-used-to-doing)  
+[Would](#would)  
+[Big deal](#big-deal)  
+[Very replacement](#very-replacement)  
+[I do not know](#i-do-not-know)  
+[Unlike](#unlike)  
+[Before](#before)  
+[It is a good thing](#it-is-a-good-thing)  
+[Wrinkle](#wrinkle)  
+[No matter](#no-matter)  
+[Almost](#almost)  
+[Sorry](#sorry)  
+
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
 > How are you
@@ -499,7 +522,7 @@ very old
 
 > That photo makes me look **ancient**
 
-## [I don't know](https://www.youtube.com/watch?v=QeXDS5v7bIQ&ab_channel=KIRILL%27SENGLISH)
+## [I do not know](https://www.youtube.com/watch?v=QeXDS5v7bIQ&ab_channel=KIRILL%27SENGLISH)
 
 > But I **have no idea** where they went
 
@@ -558,7 +581,7 @@ very old
 
 > You should have thought about it **before** trying to cheat me
 
-## [It's a good thing](https://www.youtube.com/watch?v=DNcXN-TDJiA&ab_channel=KIRILL%27SENGLISH)
+## [It is a good thing](https://www.youtube.com/watch?v=DNcXN-TDJiA&ab_channel=KIRILL%27SENGLISH)
 
 > It's a **good thing** that you came
 
@@ -695,7 +718,7 @@ almost === nearly
 > I'm sorry. I'm late
 
 > I'm sorry for what I said  
-> I'm sorry for what heppened to you and your family  
+> I'm sorry for what happened to you and your family  
 > I'm sorry for what you have been going through
 
 > I'm sorry for how I acted yesterday/other night
