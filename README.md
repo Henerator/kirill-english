@@ -98,6 +98,46 @@ What's up
 
 > Overworked and underpaid
 
+## [Good bye](https://www.youtube.com/watch?v=AKp6g6bfcrQ&ab_channel=KIRILL%27SENGLISH)
+
+> Good bye
+
+> Farewell
+
+> Bye
+
+> Good bye for now
+
+> I'll see you later
+
+> I'll catch you later
+
+> See you later
+
+> See you soon
+
+> Later
+
+> I'll talk to you soon
+
+> Talk to you soon
+
+> See you tomorrow
+
+> See you around
+
+> See you later tonight, bye
+
+> It was nice meeting you
+
+> It was a pleaser meeting you
+
+> It's been a pleasure meeting you
+
+> It's good to see you
+
+> Take care
+
 ## [Should not have done](https://www.youtube.com/watch?v=M_3Q_OZMv-Y&t=1s&ab_channel=KIRILL%27SENGLISH)
 
 > I wish I hadn't called you
