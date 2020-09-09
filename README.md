@@ -24,6 +24,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [No matter](#no-matter)  
 [Almost](#almost)  
 [Sorry](#sorry)  
+[Respond to sorry](#respond-to-sorry)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -722,3 +723,25 @@ almost === nearly
 > I'm sorry for what you have been going through
 
 > I'm sorry for how I acted yesterday/other night
+
+## [Respond to sorry](https://youtu.be/ETdmZe9UiD4?t=371)
+
+> No no no. That's alright
+
+> It's alright. Don't worry about it
+
+> Forget it
+
+> No problem
+
+> Nevermind
+
+> It doesn't matter
+
+> No big thing
+
+> No big deal
+
+> It's not your fault
+
+> Please don't blame yourself
