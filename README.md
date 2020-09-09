@@ -551,3 +551,19 @@ A new and often unexpected aspect
 > to **get** a few more **wrinkles out** before it's ready for release
 
 > There's one more **wrinkle** to consider before you dive in
+
+## [No matter](https://www.youtube.com/watch?v=6OwjsW_1q3w&ab_channel=KIRILL%27SENGLISH)
+
+> **No matter** what you say, I'm still going to do it
+
+> **No matter** how hard I tried, I couldn't do it
+
+> **No matter** where you are, I'll always remember you
+
+> **No matter** who you talk to, remember to be polite and respect them
+
+> **No matter** what
+
+> **No matter** how far you are, I'm with you
+
+> We could be friends, **no matter** the distance
