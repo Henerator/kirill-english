@@ -607,3 +607,37 @@ A new and often unexpected aspect
 > **No matter** how far you are, I'm with you
 
 > We could be friends, **no matter** the distance
+
+## [Almost](https://www.youtube.com/watch?v=gIlNojWsbNs&ab_channel=KIRILL%27SENGLISH)
+
+> I **almost** forgot. Are you coming' to the party tonight?
+
+> I **almost** ran into Jane the other day
+
+> I **almost** started to cry
+
+> I **almost** killed my hamster by stepping on him
+
+> I **almost** died there
+
+> I **almost** choked
+
+> I **almost** told him our secret
+
+> I **almost** ran over a scunk
+
+> The lecture was so boring. I **almost** fell asleep
+
+> I **almost** bought the car, but Jack stopped me
+
+> Was paid almost two hundred grand a month
+
+> They're **almost** through
+
+> **Almost** got that
+
+> I **almost** got us killed
+
+almost === nearly
+
+> We **nearly** died laughing
