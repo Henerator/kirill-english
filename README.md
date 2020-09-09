@@ -641,3 +641,61 @@ A new and often unexpected aspect
 almost === nearly
 
 > We **nearly** died laughing
+
+## [Sorry](https://www.youtube.com/watch?v=ETdmZe9UiD4&ab_channel=KIRILL%27SENGLISH)
+
+> Whoops! Sorry!  
+> Whoops. Yep, there we go. That's my fault.
+
+> Oh! Sorry 'bout that
+
+> Oh, my bad  
+> Yeah, yeah, no. That was... my bad. I didn't mean to  
+> My bad about last night
+
+> My fault, bro  
+> It's me. I'm sorry. Everything that happened, it's my fault
+
+> I'm so/terribly/very sorry!
+
+> I apologize
+
+> My apologies  
+> My apologies, I do not mean to rush... but one million is a large sum of money  
+> Accept my apologies asking this of you  
+> Just make my apologies for me
+
+> Oh my god ...  
+> Oh my gosh ...  
+> Oh me goodness, I'm so sorry
+
+> My mistake!
+
+> I had that wrong
+
+> I got that wrong
+
+> I was wrong on that
+
+> I'd like to apologize
+
+> I want to apologize
+
+> I owe you an apology  
+> I guess I owe you an apology
+
+> I wanted to tell you I'm sorry
+
+> Please forgive me
+
+> Can you forgive me?
+
+> I'm sorry for telling you that
+
+> I'm sorry. I'm late
+
+> I'm sorry for what I said  
+> I'm sorry for what heppened to you and your family  
+> I'm sorry for what you have been going through
+
+> I'm sorry for how I acted yesterday/other night
