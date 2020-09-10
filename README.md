@@ -25,6 +25,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [Almost](#almost)  
 [Sorry](#sorry)  
 [Respond to sorry](#respond-to-sorry)  
+[Have got to](#have-got-to)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -745,3 +746,38 @@ almost === nearly
 > It's not your fault
 
 > Please don't blame yourself
+
+## [Have got to](https://www.youtube.com/watch?v=CYLTAznivpA&t=1s&ab_channel=KIRILL%27SENGLISH)
+
+_have got to_ - expresses an obligation now, or on a particular occasion soon  
+_have to_ - general repeated obligation
+
+> I **gotta** go now  
+> I **have to** go there every day
+
+_have got to_ can only be used in the present
+
+> have got to  
+> 've got to  
+> gotta  
+> 've gotta
+
+> I **gotta** be at the doctor's by 2 o'clock tomorrow
+
+> I've **gotta** call my mom tomorrow
+
+> There **has got to** be the reason  
+> There's **gotta** be the reason
+
+> You've got to be kidding me  
+> You **gotta** be kidding me
+
+> This **has gotta** be your sweater, cus it's not mine
+
+> I **gotta** take a leak
+
+> You **gotta** do everything yourself
+
+> I **gotta** say, I'm incredibly excited about being part of your team
+
+> Your body **has gotta** lean forward in order to give you the lift
