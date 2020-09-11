@@ -26,6 +26,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [Sorry](#sorry)  
 [Respond to sorry](#respond-to-sorry)  
 [Have got to](#have-got-to)  
+[Conditional sentences](#conditional-sentences)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -781,3 +782,95 @@ _have got to_ can only be used in the present
 > I **gotta** say, I'm incredibly excited about being part of your team
 
 > Your body **has gotta** lean forward in order to give you the lift
+
+## [Conditional sentences](https://www.youtube.com/watch?v=w6zrRjQTsOU&list=PLY2ggSf5-r37yY-iLRfCXJm2ekhnVpcjg&index=4&ab_channel=KIRILL%27SENGLISH)
+
+### Real present (0 condition)
+
+```
+if Simple Present
+ + Simple Present
+```
+
+> If I am late,  
+> my teacher gets mad
+
+> If you heat water to 100 deg C,  
+> it boils
+
+### Real future (1st condition)
+
+```
+if Simple Present
+ + Simple Future
+```
+
+> If your plane is late,  
+> I will/gonna/can wait for you in a car
+
+> If you have any questions,  
+> please contact us
+
+### Unreal present (2nd condition)
+
+```
+if Simple Past
+ + would do
+```
+
+> If I were you,  
+> I would ...
+
+> If I had money,  
+> I would buy a big house
+
+> If I were the man I was five years ago,  
+> I'd take a flamethrower to this place
+
+> I'd keep my eyes open  
+> if I were you
+
+> If I had one wish,  
+> I would wish to see you again
+
+### Unreal past (3rd condition)
+
+```
+if Perfect Past
+ + would have done
+```
+
+> If I had studied  
+> I would have passed the test
+
+> If I had known,  
+> then I wouldn't have asked
+
+> If I had been president then,  
+> I would've known
+
+### Mixed conditional I
+
+```
+if Perfect Past
+ + would do
+```
+
+> If I had been born in China,  
+> I would speak Chinese
+
+### Mixed conditional II
+
+```
+if Simple Past
+ + would have done
+```
+
+> If I weren't shy,  
+> I would have asked her out
+
+> If we worked faster,  
+> we would have finished by now
+
+> If I were sneaking out every night,  
+> someone would've noticed by now
