@@ -27,6 +27,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [Respond to sorry](#respond-to-sorry)  
 [Have got to](#have-got-to)  
 [Conditional sentences](#conditional-sentences)  
+[Discourse markers](#discourse-markers)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -874,3 +875,51 @@ if Simple Past
 
 > If I were sneaking out every night,  
 > someone would've noticed by now
+
+## [Discourse markers](https://www.youtube.com/watch?v=ZfY9WCEyQV0&ab_channel=KIRILL%27SENGLISH)
+
+### Obviously
+
+> **Obviously**, this is going to take some time
+
+> **Obviously**, you're not gonna take my advice
+
+> Your research has **obviously** been very thorough
+
+> She frowned and was **obviously** puzzled
+
+### Apparently
+
+> **Apparently**, she's no longer working here
+
+> **Apparently**, they're not happy with that
+
+> I wasn't there, but **apparently** it went well
+
+> Does that guy ever go home? **Apparently** not
+
+### Anyway[s]
+
+> **Anyway** how have you been?
+
+> **Anyways**, let's call it a day
+
+### By the way
+
+> Davis is a man, **by the way**, not a monster
+
+> Oh, **by the way**, Vicky called while you were out
+
+> **By the way**, you're fly is open
+
+### Actually
+
+> **Actually**, she's not my aunt
+
+> **Actually**, on second thoughts, I don't think I want to go out tonight
+
+> I've known Barbara for years. Since we were babies, **actually**
+
+> **Actually**, we're not really friends
+
+> He's a friend, **actually**. Try to be nice
