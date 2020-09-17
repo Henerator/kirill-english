@@ -28,6 +28,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [Have got to](#have-got-to)  
 [Conditional sentences](#conditional-sentences)  
 [Discourse markers](#discourse-markers)  
+[Polite refusal](#polite-refusal)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -923,3 +924,21 @@ if Simple Past
 > **Actually**, we're not really friends
 
 > He's a friend, **actually**. Try to be nice
+
+## [Polite refusal](https://www.youtube.com/watch?v=f7DIHBxVje8&ab_channel=KIRILL%27SENGLISH)
+
+> **I'd love to, but** I have to wake up early tomorrow
+
+> **I'd love to, but** we're a little bit late
+
+> **I'd love to, but** her parents are taking us out to dinner
+
+> That's really nice of you, but
+
+> I'm really sorry, but I can't got on tonight
+
+> **I'm afraid** I won't be able to make it
+
+> I **would if I could**, but I have to be somewhere else
+
+> I'd rather ba a sparrow than a snail Yes, I **would if I could**
