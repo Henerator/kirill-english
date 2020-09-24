@@ -29,6 +29,7 @@ Youtube channel: https://www.youtube.com/channel/UCHRAQhDPr9otgt8si7wWUlQ
 [Conditional sentences](#conditional-sentences)  
 [Discourse markers](#discourse-markers)  
 [Polite refusal](#polite-refusal)  
+[How did it](#how-did-it)  
 
 ## [How are you](https://www.youtube.com/watch?v=PhwmSZCqJ14&ab_channel=KIRILL%27SENGLISH)
 
@@ -942,3 +943,31 @@ if Simple Past
 > I **would if I could**, but I have to be somewhere else
 
 > I'd rather ba a sparrow than a snail Yes, I **would if I could**
+
+## [How did it](https://www.youtube.com/watch?v=q8cV_YLr4BI&ab_channel=KIRILL%27SENGLISH)
+
+> How did it go?  
+> It was good
+
+> How did your final go?  
+> It went well
+
+> How did your final go?  
+> Not bad
+
+> How did the interview go?  
+> I blew it
+
+> How did your team do at the weekend?
+
+> How did your singing on the street go?
+
+> How did you do on your final?
+
+> How was your interview?
+
+> How was your first day of school?
+
+> How was your sunner slick?
+
+> How was your flight
